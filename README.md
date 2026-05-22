@@ -1,7 +1,7 @@
  Hi, I'm Sowmika!
 
 🎯 Aspiring Data Analyst | Fresher  
-📍 Coimbatore, Tamil Nadu
+📍 Erode, Tamil Nadu
 ---
  🌱 Currently Learning
 
